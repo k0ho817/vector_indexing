@@ -1,9 +1,1 @@
 # vector_indexing
-# vector_indexing
-# vector_indexing
-# vector_indexing
-# vector_indexing
-# vector_indexing
-# vector_indexing
-# vector_indexing
-# vector_indexing
